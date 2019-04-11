@@ -1,0 +1,2 @@
+# Photo Ownership Details
+All photos found here and here just for backgrounds. I'm not selling them or nothing but I like them and would like to keep using them as backgrounds or for various projects to be used as the "Lorem Ipsum" equivilant for filler content.
